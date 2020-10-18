@@ -1,5 +1,7 @@
 # Algemene Regels
 
-➥ VDM is niet toegestaan.
+➥ <b>VDM</b> is niet toegestaan.
 
 ➥ RDM is niet toegestaan.
+
+➥ Gta Rijstijl is niet toegestaan
