@@ -16,6 +16,8 @@
 
 ◦ <b>Vuurwapens</b> ➥ Als iemand een vuurwapen op je richt dien je te alle tijden mee te werken, je mag niet wegrennen of de desbetreffende persoon aanvallen. Dit valt onder de no value of life regel.
 
+◦ <b>Vuurwapen gebruik</b> ➥ Het gebruik van een vuurwapen moet beperkt zijn, jij mag iemand die jou uitscheld niet neerschieten. Bij misbruik van een vuurwapen kan deze worden ingenomen, let op deze regel valt ook in combinatie met de "Random Death Matching" regel.
+
 ◦ <b>Drugs locaties</b> ➥ Het claimen van drugs locaties is toegestaan, het geld vragen aan burgers voor de geclaimde locatie is <b>niet</b> toegestaan.
 
 ◦ <b>Onderhandeling</b> ➥ Bij een onderhandeling met de Politie en/of Marechaussee is het niet toegestaan de onderhandelaar neer te schieten en/of te gijzelen, de onderhandelaar is op het moment van onderhandeling onbewapend en mag dus niet aangevallen worden. Wanneer de agent is terug gekeerd naar zijn locatie "bijvoorbeeld achter een voertuig" en zijn wapen heeft gepakt telt deze regel niet meer.
@@ -23,5 +25,3 @@
 ◦ <b>Het dragen van gezichts bedekking</b> ➥ Het dragen van gezichts bedekkende kleding is niet toegestaan zonder het uitvoeren van illegale praktijken, als jij je bevind op blokkenpark en daar een converstatie houd met een andere burger of rondloopt is het in dit geval niet toegestaan gezichts bedekkende kleding te dragen. <b>Dit is een Wet</b>
 
 ◦ <b>Het dragen van zichtbare holsters</b> ➥ Het dragen van een zichtbaar holster is niet toegestaan zonder het uitvoeren van illegale praktijken, als jij je bevind op blokkenpark en daar een converstatie houd met een andere burger of rondloopt is het in dit geval niet toegestaan een zichtbaar holster te dragen. <b>Dit is een Wet</b>
-
-◦ <b>Kaas</b> ➥ kaas
