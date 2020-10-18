@@ -40,4 +40,6 @@
 
 ◦ <b>Microfoon</b> ➥ Je moet een goed werkende microfoon hebben. Als je dit niet hebt is het niet toegestaan om in de stad te komen.
 
-◦ <b>Kleding</b> ➥ Het dragen van overheidskleding of staff kleding is niet toegestaan. Als je dit wel doet kan hier een <b>permanente</b> ban op staan
+◦ <b>Kleding</b> ➥ Het dragen van overheidskleding of staff kleding is niet toegestaan. Als je dit wel doet kan hier een <b>permanente</b> ban op staan.
+
+◦ <b>Aanrijding</b> ➥ Bij een aanrijding moet je de roleplay aangaan. Dus niet wegrijden als je dit wel doet wordt dit gezien als VDM. 
