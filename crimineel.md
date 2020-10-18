@@ -20,8 +20,8 @@
 
 ◦ <b>Onderhandeling</b> ➥ Bij een onderhandeling met de Politie en/of Marechaussee is het niet toegestaan de onderhandelaar neer te schieten en/of te gijzelen, de onderhandelaar is op het moment van onderhandeling onbewapend en mag dus niet aangevallen worden. Wanneer de agent is terug gekeerd naar zijn locatie "bijvoorbeeld achter een voertuig" en zijn wapen heeft gepakt telt deze regel niet meer.
 
-◦ <b>Het dragen van gezichts bedekking</b> ➥ kaas
+◦ <b>Het dragen van gezichts bedekking</b> ➥ Het dragen van gezichts bedekkende kleding is niet toegestaan zonder het uitvoeren van illegale praktijken, als jij je bevind op blokkenpark en daar een converstatie houd met een andere burger of rondloopt is het in dit geval niet toegestaan gezichts bedekkende kleding te dragen. <b>Dit is een Wet</b>
 
-◦ <b>Het dragen van zichtbare holsters</b> ➥ kaas
+◦ <b>Het dragen van zichtbare holsters</b> ➥ Het dragen van een zichtbaar holster is niet toegestaan zonder het uitvoeren van illegale praktijken, als jij je bevind op blokkenpark en daar een converstatie houd met een andere burger of rondloopt is het in dit geval niet toegestaan een zichtbaar holster te dragen. <b>Dit is een Wet</b>
 
 ◦ <b>Kaas</b> ➥ kaas
