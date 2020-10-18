@@ -8,6 +8,8 @@
 
 ◦ <b>Karakter breken</b> ➥ Het ooc gaan in een roleplay situatie is niet toegestaan.
 
-◦ <b>Bug Abuse</b> ➥ Het misbruiken van bugs en niet melden is niet toegestaan. Hier kan een permanente ban op staan.
+◦ <b>Bug Abuse</b> ➥ Het misbruiken van bugs en niet melden is niet toegestaan. Hier kan een <b>permanente</b> ban op staan.
 
-◦ <b>Hacks/Mods</b> ➥ Het gebruik van hack/mods is niet toegestaan. Hier staat een permanente ban op.
+◦ <b>Hacks/Mods</b> ➥ Het gebruik van hack/mods is niet toegestaan. Hier staat een <b>permanente</b> ban op.
+
+◦ <b>Alt accounts</b> ➥ Het gebruik van alt accounts is niet toegestaan. Hier kan een <b>permanente</b> ban op staan.
