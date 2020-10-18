@@ -1,6 +1,6 @@
 # Algemene Regels
 
-➥ <bolder>VDM</bolder> is niet toegestaan.
+➥ <b>VDM</b> is niet toegestaan.
 
 ➥ <b>RDM</b> is niet toegestaan.
 
