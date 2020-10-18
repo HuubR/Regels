@@ -4,7 +4,7 @@
 
 ◦ <b>Twitter</b> ➥ Twitter is geen illegaal platform waar jij spullen mag verkopen zoals: wapens, drugs locaties en andere criminele informatie. Deze regels gelden het zelfde voor het <b>kopen</b> van criminele informatie op het platform.
 
-◦ <b>OOC</b> ➥ kaas
+◦ <b>OOC</b> ➥ OOC mag niet gebruikt worden voor illegale activiteiten, illegale activiteiten hebben niks te maken met ooc zaken. Dit is dus zoals aangegeven <b>niet</b> toegestaan.
 
 ◦ <b>Kaas</b> ➥ kaas
 
