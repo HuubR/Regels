@@ -1,3 +1,5 @@
 # Algemene Regels
 
-➥VDM is niet toegestaan.
+➥ VDM is niet toegestaan.
+
+➥ RDM is niet toegestaan.
