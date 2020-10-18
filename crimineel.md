@@ -10,18 +10,18 @@
 
 ◦ <b>Overvallen</b> ➥ Het overvallen van burgers is enkel toegestaan met goede voorafgaande roleplay, verder gelden de volgende regels bij het ontvoeren van een burger. Je mag burgers altijd overvallen, ook zonder Politie of Marechaussee in dienst, dit mag met een maximaal geld bedrag van €5,000. Je mag een agent pas overvallen vanaf totaal 6 Politie en/of Marechaussee in dienst. Verder mag je iemand niet verplichten geld te pinnen bij een overval en mag je geen wapens afpakken bij een overval.
 
-◦ <b>Kaas</b> ➥ kaas
+◦ <b>Voertuig diefstal</b> ➥ Het stelen van een burgers voertuig is niet toegestaan zonder voorafgaande roleplay. Je mag niet iemands voertuig stelen wanneer de desbetreffende persoon net uitstapt, je mag niet naast een voertuig eigenaar de deur opentrekken en het voertuig stelen.
 
-◦ <b>Kaas</b> ➥ kaas
+◦ <b>Gijzelingen</b> ➥ Het gebruiken van vrienden/kennissen als gegijzelde wat vooraf is afgesproken is <b>niet</b> toegestaan. 
 
-◦ <b>Kaas</b> ➥ kaas
+◦ <b>Vuurwapens</b> ➥ Als iemand een vuurwapen op je richt dien je te alle tijden mee te werken, je mag niet wegrennen of de desbetreffende persoon aanvallen. Dit valt onder de no value of life regel.
 
-◦ <b>Kaas</b> ➥ kaas
+◦ <b>Drugs locaties</b> ➥ Het claimen van drugs locaties is toegestaan, het geld vragen aan burgers voor de geclaimde locatie is <b>niet</b> toegestaan.
 
-◦ <b>Kaas</b> ➥ kaas
+◦ <b>Onderhandeling</b> ➥ Bij een onderhandeling met de Politie en/of Marechaussee is het niet toegestaan de onderhandelaar neer te schieten en/of te gijzelen, de onderhandelaar is op het moment van onderhandeling onbewapend en mag dus niet aangevallen worden. Wanneer de agent is terug gekeerd naar zijn locatie "bijvoorbeeld achter een voertuig" en zijn wapen heeft gepakt telt deze regel niet meer.
 
-◦ <b>Kaas</b> ➥ kaas
+◦ <b>Het dragen van gezichts bedekking</b> ➥ kaas
 
-◦ <b>Kaas</b> ➥ kaas
+◦ <b>Het dragen van zichtbare holsters</b> ➥ kaas
 
 ◦ <b>Kaas</b> ➥ kaas
