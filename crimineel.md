@@ -6,9 +6,9 @@
 
 ◦ <b>OOC</b> ➥ OOC mag niet gebruikt worden voor illegale activiteiten, illegale activiteiten hebben niks te maken met ooc zaken. Dit is dus zoals aangegeven <b>niet</b> toegestaan.
 
-◦ <b>Kaas</b> ➥ kaas
+◦ <b>Ontvoeren</b> ➥ Het ontvoeren van burgers is enkel toegestaan moet goede voorafgaande roleplay, verder gelden de volgende regels bij het ontvoeren van een burger. Je mag een burgers pas ontvoeren vanaf totaal 4 Politie en/of Marechaussee in dienst, je mag een agent pas ontvoeren vanaf totaal 6 Politie en/of Marechaussee in dienst. Verder mag je iemand niet verplichten geld te pinnen bij een ontvoering.
 
-◦ <b>Kaas</b> ➥ kaas
+◦ <b>Overvallen</b> ➥ kaas
 
 ◦ <b>Kaas</b> ➥ kaas
 
