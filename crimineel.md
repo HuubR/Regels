@@ -8,7 +8,7 @@
 
 ◦ <b>Ontvoeren</b> ➥ Het ontvoeren van burgers is enkel toegestaan moet goede voorafgaande roleplay, verder gelden de volgende regels bij het ontvoeren van een burger. Je mag een burgers pas ontvoeren vanaf totaal 4 Politie en/of Marechaussee in dienst, je mag een agent pas ontvoeren vanaf totaal 6 Politie en/of Marechaussee in dienst. Verder mag je iemand niet verplichten geld te pinnen bij een ontvoering.
 
-◦ <b>Overvallen</b> ➥ kaas
+◦ <b>Overvallen</b> ➥ Het overvallen van burgers is enkel toegestaan met goede voorafgaande roleplay, verder gelden de volgende regels bij het ontvoeren van een burger. Je mag burgers altijd overvallen, ook zonder Politie of Marechaussee in dienst, dit mag met een maximaal geld bedrag van €5,000. Je mag een agent pas overvallen vanaf totaal 6 Politie en/of Marechaussee in dienst. Verder mag je iemand niet verplichten geld te pinnen bij een overval en mag je geen wapens afpakken bij een overval.
 
 ◦ <b>Kaas</b> ➥ kaas
 
