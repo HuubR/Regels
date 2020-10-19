@@ -25,3 +25,5 @@
 ◦ <b>Het dragen van gezichts bedekking</b> ➥ Het dragen van gezichts bedekkende kleding is niet toegestaan zonder het uitvoeren van illegale praktijken, als jij je bevind op blokkenpark en daar een converstatie houd met een andere burger of rondloopt is het in dit geval niet toegestaan gezichts bedekkende kleding te dragen. <b>Dit is een Wet</b>
 
 ◦ <b>Het dragen van zichtbare holsters</b> ➥ Het dragen van een zichtbaar holster is niet toegestaan zonder het uitvoeren van illegale praktijken, als jij je bevind op blokkenpark en daar een converstatie houd met een andere burger of rondloopt is het in dit geval niet toegestaan een zichtbaar holster te dragen. <b>Dit is een Wet</b>
+
+© 2020 ZuiderveenRP
