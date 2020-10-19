@@ -12,3 +12,5 @@
 - Als je geen hartslag meer hebt
 
 ◦ <b>Melding Maken</b> ➥ Als je bent dood gegaan door iets bij het bovenstaande mag je geen melding maken.
+
+© 2020 ZuiderveenRP
