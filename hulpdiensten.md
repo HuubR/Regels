@@ -31,3 +31,5 @@
 ◦ <b>DKDB</b> ➥ Als DKDB mag je alleen een pistool dragen qua vuurwapen.
 
 ◦ <b>Collega's Oproepen</b> ➥ Het oproepen van collega's via discord omdat er bijvoorbeeld een overval is valt ondet "Metagamen".
+
+© 2020 ZuiderveenRP
