@@ -9,3 +9,5 @@
 - Persoon bij zijn irl naam noemen inplaats van zijn ingame naam
 - Het opzoeken van de persoon via de stream
 - In chat zijn irl naam noemen
+
+© 2020 ZuiderveenRP
