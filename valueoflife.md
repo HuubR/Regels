@@ -5,3 +5,5 @@
 ◦ <b>Zelfmoord/Moord In De Gevangenis</b> ➥ Zelf doding in de gevangenis is niet toegestaan. Het is ook niet toegestaan om anderen gevangenen te doden.
 
 ◦ <b>Zelfmoord</b> ➥ Je pleegt niet zomaar zelfmoord. Je springt bijvoorbeeld niet zomaar van een gebouw af. 
+
+© 2020 ZuiderveenRP
