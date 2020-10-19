@@ -10,6 +10,8 @@
 
 ◦ <b>Overvallen</b> ➥ Het overvallen van burgers is enkel toegestaan met goede voorafgaande roleplay, verder gelden de volgende regels bij het ontvoeren van een burger. Je mag burgers altijd overvallen, ook zonder Politie of Marechaussee in dienst, dit mag met een maximaal geld bedrag van €5,000. Je mag een agent pas overvallen vanaf totaal 6 Politie en/of Marechaussee in dienst. Verder mag je iemand niet verplichten geld te pinnen bij een overval en mag je geen wapens afpakken bij een overval.
 
+◦ <b>Overvallen bij nieuwelingen</b> ➥ Het overvallen van net nieuwe spelers bij bijvoorbeeld de spawn is ten strengste verboden, dit resulteert in een minimale ban van 7 dagen.
+
 ◦ <b>Voertuig diefstal</b> ➥ Het stelen van een burgers voertuig is niet toegestaan zonder voorafgaande roleplay. Je mag niet iemands voertuig stelen wanneer de desbetreffende persoon net uitstapt, je mag niet naast een voertuig eigenaar de deur opentrekken en het voertuig stelen.
 
 ◦ <b>Gijzelingen</b> ➥ Het gebruiken van vrienden/kennissen als gegijzelde wat vooraf is afgesproken is <b>niet</b> toegestaan. 
